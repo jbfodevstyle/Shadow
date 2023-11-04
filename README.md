@@ -10,3 +10,11 @@ We hope you enjoy,
 
 
 Shadow
+
+
+---------------------------------------------------------------------------
+
+
+*NOTE: If you want put javascript: Infront of the code and BOOKMARK IT***
+
+***Here is evrey hack Shadow created (Make sure to bookmark it or edit a bookmark)
